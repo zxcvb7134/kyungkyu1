@@ -1,2 +1,0 @@
-# kyungkyu1
-kyungkyu
